@@ -8,4 +8,5 @@
 - 💬 You can ask me anything  
 - 📫 For any doubts you can mail me any time at sahapreenon@gmail.com
 
-![](https://github.com/Preenon1462003/Preenon1462003/blob/main/tumblr_mtw0ojDUCQ1ru39xmo1_500.gif)
+![tumblr_mtw0ojDUCQ1ru39xmo1_500](https://user-images.githubusercontent.com/103133668/207928912-d46778b0-2c1f-41dd-aeaa-573f6cdbdf9a.gif)
+
