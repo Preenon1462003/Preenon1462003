@@ -10,4 +10,3 @@
 
 ![tumblr_mtw0ojDUCQ1ru39xmo1_500](https://user-images.githubusercontent.com/103133668/207928912-d46778b0-2c1f-41dd-aeaa-573f6cdbdf9a.gif)
 
-![image](https://user-images.githubusercontent.com/103133668/207929206-2c0204ad-1c06-45ae-8948-41273d7f5048.png)
