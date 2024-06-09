@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **Deep Learning, OpenCV**
 
-- 👯 I’m looking to collaborate on **dive deep into data science**
+- 👯 I’m looking to collaborate on **Machine Learning**
 
 - 🤝 I’m looking for help with **Contributors**
 
